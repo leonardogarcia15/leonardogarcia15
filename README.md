@@ -1,4 +1,4 @@
-## Hi 👋 my name leonardo Garcia
+## Hi 👋 my name is leonardo Garcia
 
 
 
